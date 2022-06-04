@@ -1,6 +1,2 @@
-Try
-Pls work 
-
-thnks 
-
-yyyyy
+proviamo 
+non funzia proprio 
